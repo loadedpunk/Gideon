@@ -1,0 +1,2 @@
+# Gideon
+Trading for all
